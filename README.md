@@ -1,4 +1,3 @@
-<br>
 Nama Kelompok:
 <br>
 Zulfa Iniko Falaq - 6706213090
